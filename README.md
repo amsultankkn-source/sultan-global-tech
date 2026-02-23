@@ -1,1 +1,0 @@
-# sultan-global-tech
